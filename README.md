@@ -2,7 +2,7 @@
 - 👀 I’m interested in knowledge and the arts.
 - 🌱 I’m currently learning about testing and automation.
 - 💞️ I’m looking to collaborate on automation projects.
-- 📫 You can reach me at my email: rentericruz.1996@gmail.com
+- 📫 You can reach me at my email: renteriacruz.1996@gmail.com
 - 😄 Pronouns: she/her.
 -⚡ Fun fact: I have a cat, or maybe it has me.
 
